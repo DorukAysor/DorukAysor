@@ -1,4 +1,4 @@
-## Hey I'm Doruk Aysor.... From India!
+## Hey I'm Doruk Aysor.... From Istanbul, Turkey!
 <div align="center">
   
   ##
